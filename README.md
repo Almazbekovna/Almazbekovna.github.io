@@ -1,1 +1,0 @@
-# Almazbekovna.github.io
